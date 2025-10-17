@@ -12,3 +12,8 @@ No one knows the true definition of the word curry.
 The real name of the Australian Dollar, contrary to popular belief is actually Dollary Doos.
 Crosswalks make you impervious to vehicular manslaughter.
 The word Manslaughter comes from Mans Laughter.
+Sigmund Freud was in fact not attracted to his mother.
+The inventor of the keyboard actually prefers using his mouse.
+The computer mouse is called a mouse due to the similar crunch when you bite into it.
+Truck seats rhymes with suck treats.
+Contrary to popular belief, AI is not in fact artifical, it is all natural intelligence.
